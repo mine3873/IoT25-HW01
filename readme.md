@@ -1,5 +1,5 @@
 # Assignment 1
 
-![Image](https://github.com/user-attachments/assets/04fb066d-8cf4-415b-8077-eb034eea60ba)
+![Image](https://github.com/user-attachments/assets/f0dda305-72d4-41a2-a2b5-b8e0277f9bf2)
+![Image](https://github.com/user-attachments/assets/89cabf81-8bfd-4837-8255-001a2ab9b2ae)
 
-![Image](https://github.com/user-attachments/assets/fbd9b512-8884-4455-a9a4-17cab7a79a83)
